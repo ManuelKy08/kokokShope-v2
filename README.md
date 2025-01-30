@@ -16,7 +16,7 @@
 
 ## Old versi lama
 
-<a href="https://freeimage.host/i/2QQZJG2"><img src="https://iili.io/2QQZJG2.md.png" alt="2QQZJG2.md.png" border="0"></a>
+<a href="https://freeimage.host/i/2QZ2IYx"><img src="https://iili.io/2QZ2IYx.md.png" alt="2QZ2IYx.md.png" border="0"></a>
 
 ## New versi Terbaru
 
